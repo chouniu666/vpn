@@ -11,7 +11,7 @@
 
 1元每月500G，6-9元包年https://xn--mes91r2ng7p4a.com/#/register?code=rVsRov9s
 
-3元1季度，5元每月https://xn--6nq0hk9tdjr.com/#/register?code=AOsC9hkI
+3元1季度，5元每月https://xn--6nq0hk9tdjr.com/#/register?code=AOsC9hkI  近期不稳定
 
 
 ---------------------------------------------------------------------------
