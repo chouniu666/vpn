@@ -1,6 +1,8 @@
 # vpn
 最便宜的的机场，好用的梯子
 
+最低年付3元，套餐灵活https://xn--ehqx7tcnnope.xyz/#/register?code=y0Xa1udj
+
 月5元-10元，只有月付 https://xn--mesr8b36x.business/#/register?code=Y5XgxhWi
 
 9.5每年200g/月，5元套餐每月5000G，OpenClash客户端https://xn--ehq00hgtfdmt.xyz/#/register?code=lHqFtGNf
@@ -11,7 +13,7 @@
 
 1元每月500G，6-9元包年https://xn--mes91r2ng7p4a.com/#/register?code=rVsRov9s
 
-3元1季度，5元每月https://xn--6nq0hk9tdjr.com/#/register?code=AOsC9hkI  近期不稳定
+3元1季度，5元每月https://xn--6nq0hk9tdjr.com/#/register?code=AOsC9hkI 
 
 
 ---------------------------------------------------------------------------
