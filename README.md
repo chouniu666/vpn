@@ -36,10 +36,5 @@
 
 每月：5元、8元、10元、16元，限制2-5和客户端https://xmrth.vip/auth/register?code=4aBc
 
------------------------------------------------------------------------------------------
-2023年4月机场
 
-优惠码：off50 https://chiguayun.com/#/register?code=TFcPbUFy
-
-优惠码：666https://jiasu777.top/#/register?code=wl18Pi6d
 
