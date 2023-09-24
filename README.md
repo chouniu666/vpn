@@ -5,6 +5,8 @@
 
 最低年付12，月5元优惠券：50%free https://xn--mes358acgm99l.com/#/register?code=RnGuEYmH
 
+月付1元 https://ys.651568.xyz/#/register?code=hukHYK4r
+
 最低月付1元100G极具性价比 https://a.xn--6nq44r2uh9rhj7f.com/#/register?code=38oCU6oy
 
 老牌机场有点贵，支持全流媒体NETFLI、Disney+、ChatGPT https://feijicloud.com/auth/register?code=NZVD
