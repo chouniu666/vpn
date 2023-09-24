@@ -1,6 +1,7 @@
 # vpn
 最便宜的的机场，好用的梯子，免费解锁,不定时更新代理，方便大家优惠购买性价比翻墙。
 
+老牌机场有点贵，支持全流媒体NETFLI、Disney+、ChatGPT https://feijicloud.com/auth/register?code=NZVD
 
 最低三元每月新机场https://xn--pzypc.store/#/register?code=jayDAp72
 🎁 200张 7折券码：输入【70%off】享受原价的30%OFF，超划算！💸
