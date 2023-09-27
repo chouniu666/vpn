@@ -1,9 +1,14 @@
 # vpn
 最便宜的的机场，好用的梯子，免费解锁,不定时更新代理，方便大家优惠购买性价比翻墙。
 
+
 最低年付12，月5元 优惠券：dazhe50%  https://xn--mes358a9urctx.com/#/register?code=CXkWfxE3
 
 最低年付12，月5元优惠券：50%free https://xn--mes358acgm99l.com/#/register?code=RnGuEYmH
+
+贵！号称BGP入口、IEPL/IPLC双专线热备冗余可以在国庆当天注册试用一下https://web.dashsp.top/#/register?code=xKFym66v
+
+试用期三天10G 3元每月 年付13 https://dash.996cloud.top/#/register?code=qEnheQes
 
 月付1元 https://ys.651568.xyz/#/register?code=hukHYK4r
 
