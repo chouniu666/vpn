@@ -40,7 +40,7 @@
 
 每月：1元、2元、3.98元、6.88元https://v3.nanoport.xyz/#/register?code=c3Kft188
 
-4元每月，年付11元https://xn--4gq62f52gdss.com/#/register?code=MFWfdRUa 近期有些不稳定
+4元每月，年付11元https://xn--4gq62f52gdss.com/#/register?code=MFWfdRUa
 
 每月：5元、8元、10元、16元，限制2-5和客户端https://xmrth.vip/auth/register?code=4aBc
 
