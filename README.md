@@ -1,7 +1,7 @@
 # vpn
 最便宜的的机场，好用的梯子，免费解锁,不定时更新代理，方便大家优惠购买性价比翻墙。
 
-适合高端需求,全部是IEPL内网专线，解锁全区Netflix,晚高峰YouTube 8K速率保证 [优惠地址](https://www.easy2023.com/#/register?code=pCP3zV1u) 
+适合高端需求,全部是IEPL内网专线，解锁全区Netflix,晚高峰YouTube 8K速率保证 -->[优惠地址](https://www.easy2023.com/#/register?code=pCP3zV1u) 
 
 最低0.3美元，支持支付宝，不限速：https://mitce.com/aff.php?aff=4336
 
