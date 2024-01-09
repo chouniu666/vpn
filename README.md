@@ -20,4 +20,4 @@
 | 无        | 7元/3072G/月 | 无 | 未知 | 未知 | 未知  | [2元店机场](https://xn--5hqx9equq.com/#/register?code=BfK3QcjP) |
 | 无        | 1元/88G/月 | 无 | 支持 | 3个 | 未知  | [nanoport](https://xn--i8s3q176n.xyz/#/register?code=c3Kft188) |
 | 无        | 7元/8000G/月 | 无 | 支持 | 不限 | 不限  | [1元机场](https://xn--4gq62f52gdss.art/#/register?code=MFWfdRUa) |
-| 无        | 5元/1000G/月 | 无 | 支持 | 1个 | 1-100M  | [1元机场](https://xmrth.cc/auth/register?code=4aBc) |
+| 无        | 5元/1000G/月 | 无 | 支持 | 1个 | 1-100M  | [小黑子](https://xmrth.cc/auth/register?code=4aBc) |
