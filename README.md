@@ -12,7 +12,7 @@
 
 最低年付12，月5元 优惠券：dazhe50%   -->[顶级机场](https://xn--mes358a9urctx.com/#/register?code=CXkWfxE3) 
 
-最低年付12，月5元优惠券：50%free h -->[极速机场](ttps://xn--mes358acgm99l.com/#/register?code=RnGuEYmH) 
+最低年付12，月5元优惠券：50%free h -->[极速机场](https://xn--mes358acgm99l.com/#/register?code=RnGuEYmH) 
 
 试用期三天10G 3元每月 年付13每月100G -->[FSCloud](https://dash.996cloud.top/#/register?code=qEnheQes) 
 
