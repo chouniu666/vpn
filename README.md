@@ -29,7 +29,7 @@ https://t.me/vpnjc666
 | 无        | 未知     | 14.5元/300G/月 | 未知 | 无 | 未知 | 5个 | 500M | [三分机场](https://xn--ehq00hgtfdmt.xyz/#/register?code=lHqFtGNf) |
 | 直连线路 | 未知     | 7元/1000G/月 | 11元/月100G/年 | 无 | 支持 | 不限 | 不限 | [低价机场](https://xn--6nq0hk9tdjr.com/#/register?code=AOsC9hkI) |
 | 直连线路 | 覆盖很广 | 7元/3072G/月 | 8元/月1024G/季 | 无 | 支持| 未知 | 不限 | [2元店](https://xn--5hqx9equq.com/#/register?code=BfK3QcjP) |
-| 无/全中转/解锁冷门国家| 未知 | 8元/800G/月 | 自选12个月 | 50/1000G | 支持 | 不限 | 不限 | [极速云](https://www.xn--168-vd0gw60p.com/#/register?code=7tTnzIhu) |
+| 中转线路 | 覆盖很广 | 8元/800G/月 | 自选12个月 | 50/1000G | 支持 | 不限 | 不限 | [极速云](https://www.xn--168-vd0gw60p.com/#/register?code=7tTnzIhu) |
 | 直连线路 | 未知     | 1.99元/500G/月 | 35.9元/月5888G/半年 | 9.99/1234G | 支持 | 不限 | 3G | [亏本机场](https://xn--7kq24s4ynvb.site/#/register?code=8ACDsi0s) |
 | 直连线路 | 未知     | 0.01$/100G/月 | 无 | 无 | 支持 | 不限 | 1G | [公益:三瓜云](https://snangua.com/#/register?code=krY2pvlF) |
 | 直连线路 | 香港/日/荷/美     | 0元/未知/月 | 自选年付100元 | 无 | 支持 | 不限 | 1G | [公益?:Private VPN](https://private.iil.im/#/register?code=1BSO6u87) |
