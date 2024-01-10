@@ -16,17 +16,18 @@ https://t.me/vpnjc666
 | :-------: | :------: | :-------: | :------: | :-----------: | :---------: | :---------: | :-------: | :-------: |
 | 全部IEPL | 未知      |15.88元/200G/月| 未知 | 74.99元/384GB | 支持 | 8个 | 1G | [冲浪猫](https://m.msclm.net/#/register?code=vJaLDMci) |
 | 全部IEPL | 未知      | 22元/50G/月 | 未知 | 400元/500GB | 支持 | 无 | 未知 | [ENET](https://www.easy2023.com/#/register?code=pCP3zV1u) |
-| 全部IEPL | 未知     | 0.3$/100G/月 | 未知 | 无 | 支持 | 无限制 | 1G | [Mitce](https://mitce.com/aff.php?aff=4336) |
+| 部分IEPL | 香港/美/日/新/英/台 | 0.3$/100G/月 | 未知 | 无 | 支持 | 无限制 | 1G | [Mitce](https://mitce.com/aff.php?aff=4336) |
 | 全部IEPL | 未知     | 25元/80G/月 | 未知 | 120元/100G | 支持 | 无限制 | 无限制 | [Spcloud](https://web.dashsp.top/#/register?code=xKFym66v) |
 | 部分IEPL | 未知      | 12.99元/50G/月 | 未知 | 无 | 支持 | 1个 | 60M | [飞机云](https://feijicloud.com/auth/register?code=NZVD) |
-| 无        | 台/新/日/荷/美| 5元/1000G/月 | 12元/月200G/年 | 8元/200G | 支持 | 无限制 | 未知 | [顶级机场](https://dash.djjc.cfd/#/register?code=Em1NNoFv) |
-| 无        | 未知      | 5元/100G/月 | 未知 | 8元/200G | 支持 | 未知 | 未知 | [极速机场](https://xn--mes358acgm99l.com/#/register?code=RnGuEYmH) |
-| 无        | 未知     | 3元/350G/月 | 未知 | 无 | 支持 | 无限制 | 1G | [FSCloud](https://dash.996cloud.top/#/register?code=qEnheQes) |
+| 直连线路 | 台/新/日/德/荷/美| 5元/1000G/月 | 12元/月200G/年 | 8元/200G | 支持 | 无限制 | 未知 | [顶级机场](https://dash.djjc.cfd/#/register?code=Em1NNoFv) |
+| 直连线路  | 未知      | 5元/100G/月 | 未知 | 8元/200G | 支持 | 未知 | 未知 | [极速机场](https://xn--mes358acgm99l.com/#/register?code=RnGuEYmH) |
+| 直连线路 | 未知     | 3元/350G/月 | 未知 | 无 | 支持 | 无限制 | 1G | [FSCloud](https://dash.996cloud.top/#/register?code=qEnheQes) |
 | 直连线路 | 未知     | 2元/1000G/月 | 自选12个月 | 1元/50G | 支持 | 不限 | 200M | [oiicloud](https://ys.651568.xyz/#/register?code=hukHYK4r) |
-| 无        | 未知     | 1元/50G/月 | 未知 | 无 | 支持 | 未知 | 不限 | [值](https://a.xn--6nq44r2uh9rhj7f.com/#/register?code=38oCU6oy) |
-| 无        | 未知     | 3元/5G/月 | 未知 | 无 | 支持 | 不限 | 不限 | [三毛机场](https://xn--ehqx7tcnnope.xyz/#/register?code=y0Xa1udj) |
-| 无        | 未知     | 4.99元/1024G/月 | 未知 | 无 | 未知 | 不限 | 不限 | [Big Airport](https://xn--mesr8b36x.business/#/register?code=Y5XgxhWi) |
-| 无        | 未知     | 14.5元/300G/月 | 未知 | 无 | 未知 | 5个 | 500M | [三分机场](https://xn--ehq00hgtfdmt.xyz/#/register?code=lHqFtGNf) |
+| 直连线路 | 未知     | 1元/50G/月 | 未知 | 无 | 支持 | 未知 | 不限 | [值](https://a.xn--6nq44r2uh9rhj7f.com/#/register?code=38oCU6oy) |
+| 直连线路 | 未知     | 3元/5G/月 | 未知 | 无 | 支持 | 不限 | 不限 | [三毛机场](https://xn--ehqx7tcnnope.xyz/#/register?code=y0Xa1udj) |
+| 直连线路 | 未知     | 4.99元/1024G/月 | 未知 | 无 | 未知 | 不限 | 不限 | [Big Airport](https://xn--mesr8b36x.business/#/register?code=Y5XgxhWi) |
+| 直连线路 | 香港/日/新/美/英 | 1元/88G/月 | 自选 | 无 | 支持 | 3 | 未知 | [nano](https://v2.nanoport.pro/#/register?code=Ar5WqSP5) |
+| 直连线路 | 未知     | 14.5元/300G/月 | 未知 | 无 | 未知 | 5个 | 500M | [三分机场](https://xn--ehq00hgtfdmt.xyz/#/register?code=lHqFtGNf) |
 | 直连线路 | 未知     | 7元/1000G/月 | 11元/月100G/年 | 无 | 支持 | 不限 | 不限 | [低价机场](https://xn--6nq0hk9tdjr.com/#/register?code=AOsC9hkI) |
 | 直连线路 | 覆盖很广 | 7元/3072G/月 | 8元/月1024G/季 | 无 | 支持| 未知 | 不限 | [2元店](https://xn--5hqx9equq.com/#/register?code=BfK3QcjP) |
 | 中转线路 | 覆盖很广 | 8元/800G/月 | 自选12个月 | 50/1000G | 支持 | 不限 | 不限 | [极速云](https://www.xn--168-vd0gw60p.com/#/register?code=7tTnzIhu) |
