@@ -21,14 +21,14 @@ https://t.me/vpnjc666
 | 无        | 未知      | 12元/200G/月 | 未知 | 8元/200G | 支持 | 无限制 | 未知 | [顶级机场](https://xn--mes358a9urctx.com/#/register?code=CXkWfxE3) |
 | 无        | 未知      | 5元/100G/月 | 未知 | 8元/200G | 支持 | 未知 | 未知 | [极速机场](https://xn--mes358acgm99l.com/#/register?code=RnGuEYmH) |
 | 无        | 未知     | 3元/350G/月 | 未知 | 无 | 支持 | 无限制 | 1G | [FSCloud](https://dash.996cloud.top/#/register?code=qEnheQes) |
-| 直连线路 | 未知     | 2元/1000G/月 | 10元/月1000G/年 | 1元/50G | 支持 | 不限 | 200M | [oiicloud](https://ys.651568.xyz/#/register?code=hukHYK4r) |
+| 直连线路 | 未知     | 2元/1000G/月 | 自选12个月 | 1元/50G | 支持 | 不限 | 200M | [oiicloud](https://ys.651568.xyz/#/register?code=hukHYK4r) |
 | 无        | 未知     | 1元/50G/月 | 未知 | 无 | 支持 | 未知 | 不限 | [值](https://a.xn--6nq44r2uh9rhj7f.com/#/register?code=38oCU6oy) |
 | 无        | 未知     | 3元/5G/月 | 未知 | 无 | 支持 | 不限 | 不限 | [三毛机场](https://xn--ehqx7tcnnope.xyz/#/register?code=y0Xa1udj) |
 | 无        | 未知     | 4.99元/1024G/月 | 未知 | 无 | 未知 | 不限 | 不限 | [Big Airport](https://xn--mesr8b36x.business/#/register?code=Y5XgxhWi) |
 | 无        | 未知     | 14.5元/300G/月 | 未知 | 无 | 未知 | 5个 | 500M | [三分机场](https://xn--ehq00hgtfdmt.xyz/#/register?code=lHqFtGNf) |
 | 直连线路 | 未知     | 7元/1000G/月 | 11元/月100G/年 | 无 | 支持 | 不限 | 不限 | [低价机场](https://xn--6nq0hk9tdjr.com/#/register?code=AOsC9hkI) |
 | 直连线路 | 覆盖很广 | 7元/3072G/月 | 8元/月1024G/季 | 无 | 支持| 未知 | 不限 | [2元店](https://xn--5hqx9equq.com/#/register?code=BfK3QcjP) |
-| 无/全中转/解锁冷门国家| 未知 | 8元/800G/月 | 未知 | 50/1000G | 支持 | 不限 | 不限 | [极速云](https://www.xn--168-vd0gw60p.com/#/register?code=7tTnzIhu) |
+| 无/全中转/解锁冷门国家| 未知 | 8元/800G/月 | 自选12个月 | 50/1000G | 支持 | 不限 | 不限 | [极速云](https://www.xn--168-vd0gw60p.com/#/register?code=7tTnzIhu) |
 | 直连线路 | 未知     | 1.99元/500G/月 | 35.9元/月5888G/半年 | 9.99/1234G | 支持 | 不限 | 3G | [亏本机场](https://xn--7kq24s4ynvb.site/#/register?code=8ACDsi0s) |
 
 ![image](https://github.com/chouniu666/vpn/assets/71626935/379dc05d-b1ae-488d-ab48-a77f3cf8cbcb)
