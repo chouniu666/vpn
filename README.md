@@ -1,4 +1,4 @@
-| IEPL专线 | 国家地区 | 月套餐 | 年套餐 | 长期套餐 | 流媒体解锁 | 设备数限制 | 带宽限制 | 机场直达 |
+| IEPL专线 | 国家地区 | 月套餐 | 季年套餐 | 长期套餐 | 流媒体解锁 | 设备数限制 | 带宽限制 | 机场直达 |
 | :-------: | :------: | :-------: | :------: | :-----------: | :---------: | :---------: | :-------: | :-------: |
 | 全部      | 未知      | 15.88元/200G/月 | 未知 | 74.99元/384GB | 支持 | 8个 | 1G | [冲浪猫](https://m.msclm.net/#/register?code=vJaLDMci) |
 | 全部      | 未知      | 22元/50G/月 | 未知 | 400元/500GB | 支持 | 无 | 未知 | [ENET](https://www.easy2023.com/#/register?code=pCP3zV1u) |
@@ -13,7 +13,7 @@
 | 无        | 未知     | 3元/5G/月 | 未知 | 无 | 支持 | 不限 | 不限 | [三毛机场](https://xn--ehqx7tcnnope.xyz/#/register?code=y0Xa1udj) |
 | 无        | 未知     | 4.99元/1024G/月 | 未知 | 无 | 未知 | 不限 | 不限 | [Big Airport](https://xn--mesr8b36x.business/#/register?code=Y5XgxhWi) |
 | 无        | 未知     | 14.5元/300G/月 | 未知 | 无 | 未知 | 5个 | 500M | [三分机场](https://xn--ehq00hgtfdmt.xyz/#/register?code=lHqFtGNf) |
-| 无        | 未知     | 3元/5G/月 | 未知 | 无 | 支持 | 不限 | 不限 | [三毛机场](https://xn--ehqx7tcnnope.xyz/#/register?code=y0Xa1udj) |
-| 无        | 未知     | 7元/3072G/月 | 未知 | 无 | 未知 | 未知 | 不限 | [三毛机场](https://xn--ehqx7tcnnope.xyz/#/register?code=y0Xa1udj) |
+| 无        | 未知     | 7元/1000G/月 | 11元/月100G/年 | 无 | 支持 | 不限 | 不限 | [低价机场](https://xn--6nq0hk9tdjr.com/#/register?code=AOsC9hkI) |
+| 无        | 未知     | 7元/3072G/月 | 8元/月1024G/季 | 无 | 支持| 未知 | 不限 | [2元店](https://xn--5hqx9equq.com/#/register?code=BfK3QcjP) |
 | 无/全中转/解锁冷门国家| 未知 | 8元/800G/月 | 未知 | 50/1000G | 支持 | 不限 | 不限 | [极速云](https://www.xn--168-vd0gw60p.com/#/register?code=7tTnzIhu) |
-| 无        | 未知     | 1.99元/500G/月 | 35.9元/5888G/半年 | 9.99/1234G | 支持 | 不限 | 3G | [亏本机场](https://xn--7kq24s4ynvb.site/#/register?code=8ACDsi0s) |
+| 无        | 未知     | 1.99元/500G/月 | 35.9元/月5888G/半年 | 9.99/1234G | 支持 | 不限 | 3G | [亏本机场](https://xn--7kq24s4ynvb.site/#/register?code=8ACDsi0s) |
