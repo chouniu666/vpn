@@ -40,7 +40,7 @@ https://t.me/vpnjc666
 | 直连线路 | 未知     | 5元/100G/月 | 自选| 无 | 支持 | 不限 | 未知 | [吃瓜云](https://chiguayun.club/#/register?code=YPXBe1ef) |
 | 直连线路 | 未知     | 0.01$/100G/月 | 无 | 无 | 支持 | 不限 | 1G | [公益:三瓜云](https://snangua.com/#/register?code=krY2pvlF) |
 | 直连线路 | 香港/日/荷/美     | 0元/未知/月 | 自选年付100元 | 无 | 支持 | 不限 | 1G | [公益?:Private VPN](https://private.iil.im/#/register?code=1BSO6u87) |
-| 直连线路 | 香港/日/新/美     | 0元/100G/月 | 无 | 无 | 支持 | 3个 | 不限 | [公益:超级机场](https://超级机场.com/#/register?code=rVJgYLGW) |
+| 直连线路 | 香港/日/新/美     | 1元/100G/月 | 无 | 5元100G | 支持 | 3个 | 不限 | [公益:超级机场](https://超级机场.com/#/register?code=rVJgYLGW) |
 
 https://xn--6nq44r2pg9mj.com/#/register?code=2ZZKVsU3
 
