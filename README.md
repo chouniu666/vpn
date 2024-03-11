@@ -19,6 +19,8 @@ https://t.me/vpnjc666
 | :-------: | :------: | :-------: | :------: | :-----------: | :---------: | :---------: | :-------: | :-------: |
 | 全部IEPL | 未知      |15.88元/200G/月| 未知 | 74.99元/384GB | 支持 | 8个 | 1G | [冲浪猫](https://m.msclm.net/#/register?code=vJaLDMci) |
 | 全部IEPL | 未知      | 22元/50G/月 | 未知 | 400元/500GB | 支持 | 无 | 未知 | [ENET](https://www.easy2023.com/#/register?code=pCP3zV1u) |
+| 部分IEPL | 低套餐11个国家或地区      | 9.8元/90G/月 | 适配 | 100元/120GB | 支持 | 无 | 未知 | [高端：穿云箭](https://rocket123.uk/#/register?code=0AWCsSwR) |
+| 部分IEPL | 30个节点以上 | 16.99元/100G/月 | 未知 | 55元/100GB | 支持 | 无限制 | 1G | [nicecloud签到免费10G](https://nicecloud.co/register?aff=ynjs92ia) |
 | 部分IEPL | 香港/美/日/新/英/台 | 0.3$/100G/月 | 未知 | 无 | 支持 | 无限制 | 1G | [Mitce](https://mitce.com/aff.php?aff=4336) |
 | 全部IEPL | 未知     | 25元/80G/月 | 未知 | 120元/100G | 支持 | 无限制 | 无限制 | [Spcloud](https://web.dashsp.top/#/register?code=xKFym66v) |
 | 部分IEPL | 未知      | 12.99元/50G/月 | 未知 | 无 | 支持 | 1个 | 60M | [飞机云](https://feijicloud.com/auth/register?code=NZVD) |
@@ -34,6 +36,7 @@ https://t.me/vpnjc666
 | 直连线路 | 未知     | 7元/1000G/月 | 11元/月100G/年 | 无 | 支持 | 不限 | 不限 | [低价机场](https://xn--6nq0hk9tdjr.com/#/register?code=AOsC9hkI) |
 | 直连线路 | 覆盖很广 | 7元/3072G/月 | 8元/月1024G/季 | 无 | 支持| 未知 | 不限 | [2元店](https://xn--5hqx9equq.com/#/register?code=BfK3QcjP) |
 | 中转线路 | 覆盖很广 | 8元/800G/月 | 自选12个月 | 50/1000G | 支持 | 不限 | 不限 | [极速云](https://www.xn--168-vd0gw60p.com/#/register?code=7tTnzIhu) |
+| 中转线路 | 覆盖很广 | 11.9元季，1024G/月 | 自选12个月 | 298元/1024G | 支持 | 不限 | 不限 | [ktm](https://ktmcloud.club/#/register?code=NwqhDN3K) |
 | 直连线路 | 香日新美 | 6元/1000G/月 | 年付20元，1.66元/月 | 无 | 支持 | 未知 | 未知 | [廉价](https://xn--6nq44r2pg9mj.com/#/register?code=2ZZKVsU3) |
 | 中转线路 | 未知据说60个节点 | 6元/100G/月 | 自选12个月 | 40/500G | 支持 | 未知 | 未知 | [飞兔云](https://www.xn--9kq10e0y7h.site/index.html?register=MslOHEtF) |
 | 直连线路 | 未知     | 1.99元/500G/月 | 35.9元/月5888G/半年 | 9.99/1234G | 支持 | 不限 | 3G | [亏本机场](https://xn--7kq24s4ynvb.site/#/register?code=8ACDsi0s) |
