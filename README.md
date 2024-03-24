@@ -2,6 +2,8 @@
 
 不定期更新便宜的直连VPN机场,最实惠的中转VPN梯子,最稳定的IEPL专线代理节点.
 
+chatgpt虚拟信用卡充值开卡 [点击前往](https://gpt.fomepay.com/#/pages/login/index?d=W38635)
+
 根据需求选择,稳定性:IEPL>中转>直连，多备用几家机场,反正就几块钱,防止在高峰时段失联......
 
 注意:以下只是机场的最低档套餐,更高的请自行查阅，TG交流: [https://t.me/+l6FMXA0ebDcxMTU1](https://t.me/+l6FMXA0ebDcxMTU1)
