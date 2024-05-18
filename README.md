@@ -13,6 +13,10 @@ https://t.me/vpnjc666谁有好用便宜最好免费的机场可以私聊发我,�
 
 | 连接线路 | 国家地区 | 月套餐 | 季年套餐 | 长期套餐 | 流媒体解锁 | 设备数限制 | 带宽限制 | 机场直达 |
 | :-------: | :------: | :-------: | :------: | :-----------: | :---------: | :---------: | :-------: | :-------: |
+
+| 直连线路 |40多个国家地区| 10元/120G/月 | 自选 | 100G/29元 | 支持 | 不限 | 不限 | [易连云](https://www.xn--9kqx68ccs3a.xyz/#/register?code=MGMV4hjE) |
+| IEPL | 🌟🌟🌟🌟🌟63个国家地区     |15元/100G/月| 100/年/1000G | 188元/1000GB | 支持 | 不限制 | 1G | [GW云洞](https://gw-yundong.vip/#/register?code=KUC55Jy1) |
+| 三网优化| 多个国家地区     |20元/300G/月| 自选 | 45元/300GB | 支持 | 不限制 | 1G | [hktix](https://hktix.net/#/register?code=4WHNUQI7) |
 | 直连线路 |韩香日德英台美中| 9.9元/100G/月 | 88元/年，月100G | 100G/30元 | 支持 | 不限 | 不限 | [蜂群](https://dash.fengqun.shop/#/register?code=HvlzbghK) |
 | 直连线路 | 香日新美新站福利(20G流量免费一年) | 6元/1000G/月 | 年付20元，1.66元/月 | 无 | 支持 | 未知 | 未知 | [廉价](https://xn--6nq44r2pg9mj.com/#/register?code=2ZZKVsU3) |
 | 直连线路 |43个节点：韩香日德迪澳英印巴荷加台美新法| 5元/1024G/月 | 9.99元/年，月100G | 1000G/25.99元 | 支持 | 不限 | 不限 | [三毛机场](https://xn--ehqx7tcnnope.com/#/register?code=y0Xa1udj) |
@@ -22,7 +26,7 @@ https://t.me/vpnjc666谁有好用便宜最好免费的机场可以私聊发我,�
 | 直连线路 | 未知     | 14.5元/300G/月 | 未知 | 无 | 未知 | 5个 | 500M | [三分机场](https://xn--ehq00hgtfdmt.xyz/#/register?code=lHqFtGNf) |
 | 直连线路 | 香港/日/荷/美     | 1元/10G/月 | 自选年付 | 无 | 支持 | 不限 | 1G | [Private VPN](https://private.iil.im/#/register?code=1BSO6u87) |
 | 全部IEPL | 未知      |15.88元/200G/月| 未知 | 74.99元/384GB | 支持 | 8个 | 1G | [冲浪猫](https://m.msclm.net/#/register?code=vJaLDMci) |
-| 全部IEPL | 全球主流地区·万兆金融专线|20元/50G/月| 自选 | 无 | 支持 |不限 | 1G | [DuangCloud](https://portal.dc-site5.com/#/register?code=LxWobEjX) |
+| 全部IEPL | 🌟🌟🌟🌟🌟万兆金融专线|20元/50G/月| 自选 | 无 | 支持 |不限 | 1G | [DuangCloud](https://portal.dc-site5.com/#/register?code=LxWobEjX) |
 | 部分IEPL | 香港/美/日/新/英/台 | 0.3$/100G/月 | 未知 | 无 | 支持 | 无限制 | 1G | [Mitce](https://mitce.com/aff.php?aff=4336) |
 | 全部IEPL | 未知     | 25元/80G/月 | 未知 | 120元/100G | 支持 | 无限制 | 无限制 | [Spcloud](https://web.dashsp.top/#/register?code=xKFym66v) |
 | 直连线路 | 未知 |9.9元/2000G/月 | 自选年付 | 无 | 支持 | 不限 | 未知 | [起帆](https://www.qf1.us/#/register?code=qVZpz0Jm) |
