@@ -25,10 +25,10 @@ https://t.me/vpnjc666谁有好用便宜最好免费的机场可以私聊发我,�
 | 直连线路 | 43个节点：韩香日德迪澳英印巴荷加台美新法 | 5元/1024G/月 | 9.99元/年，月100G | 1000G/25.99元 | 支持 | 不限 | 不限 | [三毛机场](https://xn--ehqx7tcnnope.com/#/register?code=y0Xa1udj) |
 | 中转线路 | 覆盖很广 | 8元/800G/月 | 自选12个月 | 50/1000G | 支持 | 不限 | 不限 | [极速云](https://www.xn--168-vd0gw60p.com/#/register?code=7tTnzIhu) |
 | 中转线路 | 丰富 | 5元/100G/月 | 自选 | 无 | 支持 | 不限 | 未知 | [吃瓜云](https://chiguayun.club/#/register?code=YPXBe1ef) |
-| 暂停注册☆ | 香港/日/新/美 | 1元/100G/月 | 无 | 5元100G | 支持 | 3个 | 不限 | [超级机场](https://超级机场.com/#/register?code=rVJgYLGW) |
+| 暂停注册☆ | 香港/日/新/美 | 1元/100G/月 | 无 | 5元100G | 支持 | 3个 | 不限 | [暂停注册超级机场](https://超级机场.com/#/register?code=rVJgYLGW) |
 | 直连线路 | 未知 | 14.5元/300G/月 | 未知 | 无 | 未知 | 5个 | 500M | [三分机场](https://xn--ehq00hgtfdmt.xyz/#/register?code=lHqFtGNf) |
 | 直连线路 | 香港/日/荷/美 | 1元/10G/月 | 自选年付 | 无 | 支持 | 不限 | 1G | [Private VPN](https://private.iil.im/#/register?code=1BSO6u87) |
-| 全部IEPL | 未知 | 15.88元/200G/月 | 未知 | 74.99元/384GB | 支持 | 8个 | 1G | [冲浪猫](https://m.msclm.net/#/register?code=vJaLDMci) |
+| 全部IEPL | 未知 | 15.88元/200G/月 | 未知 | 74.99元/384GB | 支持 | 8个 | 1G | [老板跑路，逐步恢复中的冲浪猫](https://m.msclm.net/#/register?code=vJaLDMci) |
 | 全部IEPL | 万兆金融专线 | 20元/50G/月 | 自选 | 无 | 支持 | 不限 | 1G | [DuangCloud](https://portal.dc-site5.com/#/register?code=LxWobEjX) |
 | 部分IEPL | 香港/美/日/新/英/台 | 0.3$/100G/月 | 未知 | 无 | 支持 | 无限制 | 1G | [Mitce](https://mitce.com/aff.php?aff=4336) |
 | 全部IEPL | 未知 | 25元/80G/月 | 未知 | 120元/100G | 支持 | 无限制 | 无限制 | [Spcloud](https://web.dashsp.top/#/register?code=xKFym66v) |
