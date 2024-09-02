@@ -1,5 +1,5 @@
 
-恰个饭：天命仿官西游QQ群981135991，支持手机4端互通，天天爆满。
+三网优化vps推荐 流媒体解锁 香港美国 1TB每月 [点击前往](https://www.vkvm.info/aff/ROKYJZCG)
 
 搜索cloudflare workers VLESS 可以找到自建免费节点的教程,不需要任何费用,不需要服务器,但是需要点动手能力.
 
