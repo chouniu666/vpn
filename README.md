@@ -20,6 +20,7 @@ https://t.me/vpnjc666谁有好用便宜最好免费的机场可以私聊发我,�
 | 直连线路 | 43个节点：韩香日德迪澳英印巴荷加台美新法 | 5元/1024G/月 | 9.99元/年，月100G | 1000G/25.99元 | 支持 | 不限 | 不限 | [三毛机场](https://xn--ehqx7tcnnope.com/#/register?code=y0Xa1udj) |
 | 中转线路 | 丰富 | 5元/100G/月 | 自选 | 无 | 支持 | 不限 | 未知 | [吃瓜云](https://chiguayun.club/#/register?code=YPXBe1ef) |
 | 中转线路 | 未知 | 14.5元/300G/月 | 未知 | 无 | 未知 | 5个 | 500M | [三分机场](https://xn--ehq00hgtfdmt.xyz/#/register?code=lHqFtGNf) |
+| 全部IEPL | 主播都在推 | 10元/220G/月 | 自选 | 89.9元/1000GB | 支持 | 不限 | 1G | [红杏](https://hongxingdl.com/web/#/login?code=vkWKpF9g) |
 | 全部IEPL | 老牌：万兆金融专线 | 20元/50G/月 | 自选 | 无 | 支持 | 不限 | 1G | [DuangCloud](https://portal.dc-site5.com/#/register?code=LxWobEjX) |
 | 全部IEPL | 高峰不卡 | 15.88元/200G/月 | 未知 | 74.99元/384GB | 支持 | 8个 | 1G | [冲浪猫](https://m.msclm.net/#/register?code=vJaLDMci) |
 | 部分IEPL | 低套餐11个国家或地区 | 9.8元/90G/月 | 适配 | 100元/120GB | 支持 | 无 | 未知 | [高端：穿云箭](https://rocket123.uk/#/register?code=0AWCsSwR) |
