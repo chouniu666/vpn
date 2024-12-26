@@ -10,7 +10,6 @@ https://t.me/vpnjc666谁有好用便宜最好免费的机场可以私聊发我,�
 
 | 连接线路 | 国家地区 | 月套餐 | 季年套餐 | 长期套餐 | 流媒体解锁 | 设备数限制 | 带宽限制 | 机场直达 |
 | :-------: | :------: | :------: | :-----------: | :---------: | :---------: | :-------: | :-------: | :-------: |
-| 直连线路 | 43个节点：韩香日德迪澳英印巴荷加台美新法 | 5元/1024G/月 | 9.99元/年，月100G | 1000G/25.99元 | 支持 | 不限 | 不限 | [三毛机场](https://xn--ehqx7tcnnope.com/#/register?code=y0Xa1udj) |
 | 中转线路 | 丰富 | 5元/100G/月 | 自选 | 无 | 支持 | 不限 | 未知 | [吃瓜云](https://chiguayun.club/#/register?code=YPXBe1ef) |
 | 全部IEPL | 主播都在推 | 10元/220G/月 | 自选 | 89.9元/1000GB | 支持 | 不限 | 1G | [红杏](https://hongxingdl.com/web/#/login?code=vkWKpF9g) |
 | 全部IEPL | 老牌：万兆金融专线 | 20元/50G/月 | 自选 | 无 | 支持 | 不限 | 1G | [DuangCloud](https://portal.dc-site5.com/#/register?code=LxWobEjX) |
