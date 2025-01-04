@@ -12,11 +12,9 @@ https://t.me/vpnjc666谁有好用便宜最好免费的机场可以私聊发我,�
 | :-------: | :------: | :------: | :-----------: | :---------: | :---------: | :-------: | :-------: | :-------: |
 | 中转线路 | 丰富 | 5元/100G/月 | 自选 | 无 | 支持 | 不限 | 未知 | [吃瓜云](https://chiguayun.club/#/register?code=YPXBe1ef) |
 | 全部IEPL | 主播都在推 | 10元/220G/月 | 自选 | 89.9元/1000GB | 支持 | 不限 | 1G | [红杏](https://hongxingdl.com/web/#/login?code=vkWKpF9g) |
-| 全部IEPL | 老牌：万兆金融专线 | 20元/50G/月 | 自选 | 无 | 支持 | 不限 | 1G | [DuangCloud](https://portal.dc-site5.com/#/register?code=LxWobEjX) |
 | 部分IEPL | 低套餐11个国家或地区 | 9.8元/90G/月 | 适配 | 100元/120GB | 支持 | 无 | 未知 | [高端：穿云箭](https://rocket123.uk/#/register?code=0AWCsSwR) |
 | IEPL/住宅IP | 香港/美/日/新/英/台 | 0.3$/100G/月 | 未知 | 无 | 支持 | 无限制 | 1G | [Mitce](https://mitce.com/aff.php?aff=4336) |
 | 全部IEPL | 企业专线 | 25元/80G/月 | 未知 | 120元/100G | 支持 | 无限制 | 无限制 | [Spcloud](https://web.dashsp.top/#/register?code=xKFym66v) |
-| 直连线路 | 丰富 | 3.99元/1000G/月 |50000/120元/年 | 88TB/198元 | 支持 | 不限 | 不限 | [Needay](https://needay.xyz/#/register?code=iLtbXP7l) |
 | 中转线路 | 香港/日/新/美 | 3元/100G/月 | 无 | 5元100G | 支持 | 3个 | 不限 | [超级机场](https://超级机场.com/#/register?code=rVJgYLGW) |
 | 三网优化 | 多个国家地区 | 12元/150G/月 | 自选 | 45元/300GB | 支持 | 不限制 | 1G | [hktix](https://hktix.net/#/register?code=4WHNUQI7) |
 | IELP线路 | 覆盖很广 | 8元/800G/月 | 自选12个月 | 50/1000G | 支持 | 不限 | 不限 | [极速云](https://www.xn--168-vd0gw60p.com/#/register?code=7tTnzIhu) |
