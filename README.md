@@ -15,9 +15,7 @@ https://t.me/vpnjc666谁有好用便宜最好免费的机场可以私聊发我,�
 | 部分IEPL | 低套餐11个国家或地区 | 9.8元/90G/月 | 适配 | 100元/120GB | 支持 | 无 | 未知 | [高端：穿云箭](https://rocket123.uk/#/register?code=0AWCsSwR) |
 | IEPL/住宅IP | 香港/美/日/新/英/台 | 0.3$/100G/月 | 未知 | 无 | 支持 | 无限制 | 1G | [Mitce](https://mitce.com/aff.php?aff=4336) |
 | 全部IEPL | 企业专线 | 25元/80G/月 | 未知 | 120元/100G | 支持 | 无限制 | 无限制 | [Spcloud](https://web.dashsp.top/#/register?code=xKFym66v) |
-| 中转线路 | 香港/日/新/美 | 3元/100G/月 | 无 | 5元100G | 支持 | 3个 | 不限 | [超级机场](https://超级机场.com/#/register?code=rVJgYLGW) |
-| 三网优化 | 多个国家地区 | 12元/150G/月 | 自选 | 45元/300GB | 支持 | 不限制 | 1G | [hktix](https://hktix.net/#/register?code=4WHNUQI7) |
-| IELP线路 | 覆盖很广 | 8元/800G/月 | 自选12个月 | 50/1000G | 支持 | 不限 | 不限 | [极速云](https://www.xn--168-vd0gw60p.com/#/register?code=7tTnzIhu) |
+| IELP线路 | 覆盖很广 | 8元/800G/月 | 自选12个月 | 50/1000G | 支持 | 不限 | 不限 | [极速云](https://w1.lypyf.com/#/register?code=7tTnzIhu) |
 | 直连线路 | 未知 | 13元/年/100G/月 | 未知 | 无 | 支持 | 无限制 | 1G | [FSCloud](https://dash.996cloud.top/#/register?code=qEnheQes) |
 | 中转线路 | 据说80个节点 | 3元/50G/月 | 自选12个月 | 40/500G | 支持 | 未知 | 未知 | [飞兔云](https://www.xn--9kq10e0y7h.site/index.html?register=MslOHEtF) |
 | 直连线路7.5折优惠码：duanwu888 | 40多个国家地区 | 10元/120G/月 | 自选 | 100G/29元 | 支持 | 不限 | 不限 | [易连云](https://xn--9kqx68ccs3a.xyz/#/register?code=MGMV4hjE) |
