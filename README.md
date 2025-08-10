@@ -8,7 +8,6 @@ https://t.me/vpnjc666谁有好用便宜最好免费的机场可以私聊发我,�
 
 | 连接线路 | 国家地区 | 月套餐 | 季年套餐 | 长期套餐 | 流媒体解锁 | 设备数限制 | 带宽限制 | 机场直达 |
 | :-------: | :------: | :------: | :-----------: | :---------: | :---------: | :-------: | :-------: | :-------: |
-| 全部IEPL | 主播都在推 | 10元/220G/月 | 自选 | 89.9元/1000GB | 支持 | 不限 | 1G | [红杏](https://hongxingyun.blog/web/#/login?code=vkWKpF9g) |
 | 部分IEPL | 低套餐11个国家或地区 | 9.8元/90G/月 | 适配 | 100元/120GB | 支持 | 无 | 未知 | [高端：穿云箭](https://rocket123.uk/#/register?code=0AWCsSwR) |
 | IEPL/住宅IP | 香港/美/日/新/英/台 | 0.3$/100G/月 | 未知 | 无 | 支持 | 无限制 | 1G | [Mitce](https://mitce.com/aff.php?aff=4336) |
 | IELP线路 | 覆盖很广 | 8元/800G/月 | 自选12个月 | 50/1000G | 支持 | 不限 | 不限 | [极速云](https://w1.lypyf.com/#/register?code=7tTnzIhu) |
@@ -16,6 +15,7 @@ https://t.me/vpnjc666谁有好用便宜最好免费的机场可以私聊发我,�
 | 中转线路 | 据说80个节点 | 3元/50G/月 | 自选12个月 | 40/500G | 支持 | 未知 | 未知 | [飞兔云](https://www.xn--9kq10e0y7h.site/index.html?register=MslOHEtF) |
 | 直连线路7.5折优惠码：duanwu888 | 40多个国家地区 | 10元/120G/月 | 自选 | 100G/29元 | 支持 | 不限 | 不限 | [易连云](https://easylink.ppspeed.me/#/register?code=MGMV4hjE) |
 | 中转线路 | 丰富 | 5元/100G/月 | 自选 | 无 | 支持 | 不限 | 未知 | [吃瓜云](https://chiguayun.club/#/register?code=YPXBe1ef) |
+| 全部IEPL | 主播都在推 | 10元/220G/月 | 自选 | 89.9元/1000GB | 支持 | 不限 | 1G | [红杏](https://hongxingyun.blog/web/#/login?code=vkWKpF9g) |
 
 **说明：**
 
