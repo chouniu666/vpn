@@ -1,7 +1,7 @@
 搜索cloudflare workers VLESS 可以找到自建免费节点的教程,不需要任何费用,不需要服务器,但是需要点动手能力.
 不定期更新便宜的直连VPN机场,最实惠的中转VPN梯子,最稳定的IEPL专线代理节点.
 根据需求选择,稳定性:IEPL>中转>直连，多备用几家机场,反正很多就几块钱1年,防止在高峰时段失联......
-[红杏](https://hongxingdl.com/web/#/login?code=vkWKpF9g) 限时7折优惠码：元旦大红包。
+
 注意:以下只是机场的最低档套餐,更高的请自行查阅，TG交流: [https://t.me/+l6FMXA0ebDcxMTU1](https://t.me/+l6FMXA0ebDcxMTU1)
 https://t.me/vpnjc666谁有好用便宜最好免费的机场可以私聊发我,场主也可以,我会添加进来，提供nas、软路由、openwrt+openclash等的低端技术支持（看搜来教程就能会的技术），50元起步，所以没事别找我。
 ##  机场推荐表格
