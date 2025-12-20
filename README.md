@@ -14,7 +14,7 @@
 | 直连线路7.5折优惠码：duanwu888 | 40多个国家地区 | 10元/120G/月 | 自选 | 100G/29元 | 支持 | 不限 | 不限 | [易连云](https://easylink.ppspeed.me/#/register?code=MGMV4hjE) |
 | 中转线路 | 丰富 | 5元/100G/月 | 自选 | 无 | 支持 | 不限 | 未知 | [吃瓜云](https://chiguayun.club/#/register?code=YPXBe1ef) |
 | 部分IEPL | 低套餐11个国家或地区 | 9.8元/90G/月 | 适配 | 100元/120GB | 支持 | 无 | 未知 | [高端：穿云箭](https://rocket123.uk/#/register?code=0AWCsSwR) |
-| 全部IEPL | 主播都在推 | 10元/220G/月 | 自选 | 89.9元/1000GB | 支持 | 不限 | 1G | [红杏](https://hongxingyun.blog/web/#/login?code=vkWKpF9g) |
+
 
 
 **说明：**
