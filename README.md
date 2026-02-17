@@ -8,7 +8,7 @@
 | 连接线路 | 国家地区 | 月套餐 | 季年套餐 | 长期套餐 | 流媒体解锁 | 设备数限制 | 带宽限制 | 机场直达 |
 | :-------: | :------: | :------: | :-----------: | :---------: | :---------: | :-------: | :-------: | :-------: |
 | IEPL/住宅IP | 香港/美/日/新/英/台 | 0.3$/100G/月 | 未知 | 无 | 支持 | 无限制 | 1G | [Mitce](https://mitce.com/aff.php?aff=4336) |
-| IELP线路 | 覆盖很广 | 8元/800G/月 | 自选12个月 | 50/1000G | 支持 | 不限 | 不限 | [极速云](https://w1.lypyf.com/#/register?code=7tTnzIhu) |
+| IELP线路 | 覆盖很广 | 8元/800G/月 | 自选12个月 | 50/1000G | 支持 | 不限 | 不限 | [极速云](https://w4.rouhe88.com/#/register?code=4fZIbOdQ) |
 | 直连线路 | 未知 | 13元/年/100G/月 | 未知 | 无 | 支持 | 无限制 | 1G | [FSCloud](https://dash.996cloud.top/#/register?code=qEnheQes) |
 | 中转线路 | 据说80个节点 | 3元/50G/月 | 自选12个月 | 40/500G | 支持 | 未知 | 未知 | [飞兔云](https://www.xn--9kq10e0y7h.site/index.html?register=MslOHEtF) |
 | 直连线路7.5折优惠码：duanwu888 | 40多个国家地区 | 10元/120G/月 | 自选 | 100G/29元 | 支持 | 不限 | 不限 | [易连云](https://easylink.ppspeed.me/#/register?code=MGMV4hjE) |
