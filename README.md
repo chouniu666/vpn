@@ -1,3 +1,35 @@
+
+<div align="right">
+  <details>
+    <summary >🌐 Language</summary>
+    <div>
+      <div align="center">
+        <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=en">English</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=zh-CN">简体中文</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=zh-TW">繁體中文</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=ja">日本語</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=ko">한국어</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=hi">हिन्दी</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=th">ไทย</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=fr">Français</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=de">Deutsch</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=es">Español</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=it">Italiano</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=ru">Русский</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=pt">Português</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=nl">Nederlands</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=pl">Polski</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=ar">العربية</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=fa">فارسی</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=tr">Türkçe</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=vi">Tiếng Việt</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=id">Bahasa Indonesia</a>
+        | <a href="https://openaitx.github.io/view.html?user=chouniu666&project=vpn&lang=as">অসমীয়া</
+      </div>
+    </div>
+  </details>
+</div>
+
 搜索cloudflare workers VLESS 可以找到自建免费节点的教程,不需要任何费用,不需要服务器,但是需要点动手能力.
 不定期更新便宜的直连VPN机场,最实惠的中转VPN梯子,最稳定的IEPL专线代理节点.
 根据需求选择,稳定性:IEPL>中转>直连，多备用几家机场,反正很多就几块钱1年,防止在高峰时段失联......
